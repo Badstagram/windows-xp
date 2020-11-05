@@ -1,3 +1,4 @@
+![haha u thought](https://media1.tenor.com/images/8c409e6f39acc1bd796e8031747f19ad/tenor.gif)  
 We're no strangers to love  
 You know the rules and so do I  
 A full commitment's what I'm thinking of  
